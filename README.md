@@ -1,0 +1,1 @@
+# skd26_tiukerjaalltipe3
